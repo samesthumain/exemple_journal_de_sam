@@ -2,7 +2,7 @@
 ## Plan de présentation
 
 ### Présentation
-Je m'appelle Samuel Desmeules-Voyer j'ai 17 ans et mon but dans la vie est de créer mon npropre jeux vidéo et possiblement ma propre entreprise. 
+Je m'appelle Samuel Desmeules-Voyer j'ai 17 ans, ma technique est le technique d'integration multimédia et mon but dans la vie est de créer mon propre jeux vidéo et possiblement ma propre entreprise. 
 
 ### Intérêts dans le domaine
 j'aime le design graphique et la programation et la production sonore.
