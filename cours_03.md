@@ -2,19 +2,19 @@
 ## Plan de présentation
 
 ### Présentation
-Parlez de vous. 
+Je m'appelle Samuel Desmeules-Voyer j'ai 17 ans et mon but dans la vie est de créer mon npropre jeux vidéo et possiblement ma propre entreprise. 
 
 ### Intérêts dans le domaine
-Parlez de vos intérêts en multimédia. 
+j'aime le design graphique et la programation et la production sonore.
 
 ### Emplois qui vous intéressent
-Nommez deux emplois.
+Game designer et écrivain.
 
 ### Identification
 Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
 
 ### Dans 5 ans
-Où vous voyez-vous dans 5 ans? 
+Dans une compagnie de jeux videos.
 
 ### Projets
-Expliquez un ou des projets que vous aimeriez faire. 
+je suis en train d'écrire un script pour un jeux vidéo que veux faire plus tard. 
