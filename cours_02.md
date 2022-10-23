@@ -12,8 +12,9 @@ L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui 
 ### [Sifu](https://store.epicgames.com/fr/p/sifu)
 Malgré la nature clairement invraisemblable de l'histoire de Sifu, le jeux arrive tout de même a maitenir un ton extrêmement réaliste qui est rarement vu dans le domaine du jeux video. Ce côté réaliste qu'a Sifu est dût au fait que toutes les actions que fait le personnage principal sont basés sur des arts martiaux réels et du street fight:le personnage principal se met dans des situations ou il n'y a ni foie ni loi, il doit se défendre de n'importe quel moyen possible et avec tous ce qui lui passe sous la main. Cela donne un côté réaliste au combats et investis le joueur dans le combat déséspéré du personage principal.
 
-### Lien 3 
-Expliquer pourquoi vous avez choisi ce lien.  
+### [Supergiant](https://www.supergiantgames.com/) 
+Supergiant games est une petite compagnie qui est connue pour la manière dont elle traite ses employés. Récement, il y a de plus en plus de scandales sur dût à la manière dont beaucoups de grosses compagnies de jeux vidéos traitent leurs employés: des heures et des heures d'overtime dans des condition répugnantes tous cela dans le but de sortir un jeux dans les temps alors que, Supergiant, eux, donnent des heures décentes et de nombreuses pauses dans des salles confortables faite spécifiquement dans le but de donner le plus de confort possible à leurs employés et ils ont réussi a créer des jeux de super haute qualitée comme Hades.
+
 
 ### Lien 4 
 Expliquer pourquoi vous avez choisi ce lien. 
