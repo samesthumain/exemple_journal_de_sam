@@ -14,7 +14,7 @@ l'animation 3D m'a toujours fasciné: c'est comme filmer des acteurs mais les ac
 ### Emploi 4 - Acteur de voix
 J'ai toujours aimé jouer des personnages: dans la vie de tous les jours, je suis toujours en train de faire des voix différentes et depuis que je suis tout petit, je suis toujours en train d'immiter les voix de mes personnages favoris.
 
-### Emploi 5 - Identification
-4 à 5 lignes
+### Emploi 5 - Joueur professionel
+Je joue à des jeux vidéos depuis que je suis tout petit et je suis devenu decent à certain d'entre eux (surtout Super smash bros). j'ai participé à quelques tournois et gagné l'un d'entre eux. Honnaitement, je ne crois pas que je vais être capable d'en faire une carrière mais je continues toujours à me pratiquer pour que je soit prêt si une opportunité se présente.
 
 
