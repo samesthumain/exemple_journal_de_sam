@@ -11,8 +11,8 @@ J'ai toujours aimé raconter des histoires, créer des univers et des personages
 ### Emploi 3 - Animateur 3D
 l'animation 3D m'a toujours fasciné: c'est comme filmer des acteurs mais les acteurs ressemblent exactement à ce que tu veux, font exactement ce que tu veux et tu peux les filmer de la manière que tu veux même si tu n'a jamais touché à une caméra de ta vie. La motion capture est aussis fascinante: c'est un mélange de deux choses que j'adore: l'animation et l'acting. 
 
-### Emploi 4 - Identification
-4 à 5 lignes
+### Emploi 4 - Acteur de voix
+J'ai toujours aimé jouer des personnages: dans la vie de tous les jours, je suis toujours en train de faire des voix différentes et depuis que je suis tout petit, je suis toujours en train d'immiter les voix de mes personnages favoris.
 
 ### Emploi 5 - Identification
 4 à 5 lignes
