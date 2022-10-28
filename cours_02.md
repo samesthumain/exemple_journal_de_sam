@@ -16,9 +16,9 @@ Malgré la nature clairement invraisemblable de l'histoire de Sifu, le jeux arri
 Supergiant games est une petite compagnie qui est connue pour la manière dont elle traite ses employés. Récement, il y a de plus en plus de scandales sur dût à la manière dont beaucoups de grosses compagnies de jeux vidéos traitent leurs employés: des heures et des heures d'overtime dans des condition répugnantes tous cela dans le but de sortir un jeux dans les temps alors que, Supergiant, eux, donnent des heures décentes et de nombreuses pauses dans des salles confortables faite spécifiquement dans le but de donner le plus de confort possible à leurs employés et ils ont réussi a créer des jeux de super haute qualitée comme Hades.
 
 
-### Lien 4 
-Expliquer pourquoi vous avez choisi ce lien. 
+### [Valorant](https://playvalorant.com/)
+Valorant est un jeu ultra compétitif qui mets beaucoups d'enfase sur un environnement compétitif équitable. Ceci est impressionant sachant que beaucoups de jeux compétitifs qui ont des problêmes de balance.
 
-### Lien 5 
-Expliquer pourquoi vous avez choisi ce lien. 
+### [Super smash bros](https://www.smashbros.com/)
+Super smash bros est un jeu de combat qui, contrairement à la plupart des jeux de combat, est très facile à apprendre et facile à jouer pour toute la famille. C'est à cause super smash bros que je joue régulièrement à des jeux de combats maintenant.
 
